@@ -1,1 +1,1 @@
-It is normal Taylor website for sampling.
+It is normal Tailor website for sampling.
